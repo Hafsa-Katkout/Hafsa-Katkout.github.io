@@ -1,1 +1,1 @@
-Bienvenido a mi pájina personal
+Bienvenido a mi página personal
